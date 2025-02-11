@@ -6,6 +6,8 @@
   ⤷ whisper 2 interact bc im likely afk..
   
   ⤷ u can req me on dc, js lmk ure from pt!
+
+
   
 
   ── .✦ basic info abt me ! ✦. ──
@@ -23,6 +25,8 @@
   ⤷ i love music , art , writing , etc
   
   ⤷ im lowk really cool when u get to know me sooo ttm!!
+
+  
   
 
   anyways thats all , PLSS BRO talk to me if u watch jjk im obsessed
